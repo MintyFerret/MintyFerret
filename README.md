@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MintyFerret
+- 👀 I’m interested in video games, movies, food and good times
+- 🌱 I’m currently learning Bachelor of Game Design
+- 💞️ I’m looking to collaborate on Side Scrollers or Dungeon Crawlers
+- 📫 How to reach me @StonerFerret on Telegram or @LuditasF on Twitter
+- Terrible at coding currently but working on it >///<
